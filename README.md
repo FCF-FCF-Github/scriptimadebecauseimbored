@@ -1,2 +1,1 @@
-# scriptimadebecauseimbored
-EVERY THIS SCRIPT IS UNDER MOONSPEC V3 AND WE ARE DEVS OBFUSCATOR
+Idk, im just bored so i made this scripts lol
